@@ -1,12 +1,8 @@
-Chapter 1: Whatever
+Chapter 3: Attack of the Aliens
 
-a;sldkfja
-a
-sfals;dkfjas
-fsdfaskjfa
+pjnakjnkjnkjn
+nnkjnkojnokjn
+kjnlkjnljk
 
-Git - DECENTRALIZED COLLABORATION
-
-I effed up
-
-hello
+asdfa
+tryjty
