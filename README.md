@@ -1,12 +1,8 @@
-Chapter 1: Whatever
+Chapter 2: blah blah blah
 
-a;sldkfja
-a
-sfals;dkfjas
-fsdfaskjfa
+wqer
 
-Git - DECENTRALIZED COLLABORATION
-
-I effed up
-
-hello
+qwetqwerqwer
+qwer
+qwer
+qwer
